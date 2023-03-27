@@ -1,4 +1,3 @@
-Hi Erin&Simao,
 
 I will write a walkthrough about the project:
 
